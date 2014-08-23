@@ -108,6 +108,7 @@
 ### Volunteers
 
 - lots of nice people
+- always recruiting!
 
 ### Contact Info Again
 
